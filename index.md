@@ -11,3 +11,9 @@ As a singer, Willis released his debut album The Return of Bruno in 1987. He rel
 * is the coolest taxi driver within the 5th Element
 * withstand hard times in 12 Monkeys
 * is cool again in Pulp Fiction as all the other characters there
+
+Bruce Willis said
+
+> You can't undo the past... but you can certainly not repeat it.
+
+(Read more at https://www.brainyquote.com/authors/bruce-willis-quotes)
