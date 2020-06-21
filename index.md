@@ -17,3 +17,7 @@ Bruce Willis said
 > You can't undo the past... but you can certainly not repeat it.
 
 (Read more at https://www.brainyquote.com/authors/bruce-willis-quotes)
+
+
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/c/c4/Bruce_Willis_by_Gage_Skidmore_3.jpg"/>
